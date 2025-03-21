@@ -1,2 +1,2 @@
 # digital-portfolio
-varate mamae durrr
+varate mamae durrr,, revised edition !!!
